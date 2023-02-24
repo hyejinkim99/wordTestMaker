@@ -162,7 +162,7 @@ contrary
 contrast
 controversy
 counterattack
-counterfei
+counterfeit
 counterpart
 monologue
 union
